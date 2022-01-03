@@ -6,9 +6,6 @@
 
 - 📫 How to reach me **omprakash72810@gmail.com**
 
-- ⚡ Fun fact 1: **I think I am funny and sometime I overthink😂**
-- ⚡ Fun fact 2: **I spend almost 10-12 hours listening songs everyday**
-
 <hr>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
